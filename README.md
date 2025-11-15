@@ -1,1 +1,1 @@
-Re-building phase. Ep. 82.
+Working on Knowledge Management, Applied AI, Legislative Tracking
